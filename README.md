@@ -88,8 +88,6 @@ Old github account: alienatic-aein
 
 thats all..
 
-They're all YOURS, Mr. Doe.
-![image](https://github.com/user-attachments/assets/bfd78469-1193-472b-8039-a03f9af830e1)
 
 
 <!--

@@ -2,7 +2,7 @@
 
 Hi, I'm Aein and get to know me right here: (this is for ponytown.)
 
-FANDOMS: Roblox, TR:UD, TAWOG, Adventure Time, Friday Night Funkin, Rodamrix, Vs. Impostor, Among Us, Yume Nikki, FAI†H: The Unholy Trinity, Tattletail, OSC, Sonic The Hedgehog, Regretevator, Dandy's World, Sprunki, Lacey Games, Mandela Catalouge, MO4, _Boisvert, Doctor Nowhere, AVAM, Alien Stage, PJSK, GRACE, Forsaken, Sprunki.
+FANDOMS: Roblox, TR:UD, TAWOG, Adventure Time, Friday Night Funkin, Rodamrix, Vs. Impostor, Among Us, Yume Nikki, FAI†H: The Unholy Trinity, Tattletail, OSC, Sonic The Hedgehog, Regretevator, Dandy's World, Sprunki, Lacey Games, Mandela Catalouge, MO4, _Boisvert, Doctor Nowhere, AVAM, Alien Stage, PJSK, GRACE, Forsaken, Sprunki, DREAMGAME.
 
 Favorite characters from each of the fandoms i mentioned there.
 Noob, Guest, Acorn. (Roblox)
@@ -57,13 +57,16 @@ Dozer, Heed, Sorrow, Doppel. (GRACE)
 
 All characters (Forsaken)
 
-Durple, Simon, Gray, Jevin. (Sprunki)
+Durple, Simon, Gray, Jevin, Mr Sun, Sky. (Sprunki)
+
+The Mafiosos, Eunoia, Nash, The Bunnies. (DREAMGAME)
 
 ... Do not interact with me if:
 
 You're a homo, racist, transphobic or just someone extremely problematic.
 You try to sexualize me.
 you made fun of me.
+
 ... If i interact with you:
 
 I'm interested in you
@@ -74,6 +77,7 @@ You're allowed to:
 c+h
 w2i
 crown my skin/cosplay
+
 SOCIALS YOU CAN ADD ME IN!
 
 Discord: n0point0f_return

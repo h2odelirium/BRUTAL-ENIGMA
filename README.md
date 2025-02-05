@@ -1,9 +1,7 @@
 ## Hey.
 Hi, my name is aein artwrite but call me aein for short. I'm often offtab playing games or doing schoolwork. I am heavily bad at socializing with new people but you are free to interact with me! I accept c+h and crowning ^_^.
 
-  ![image](https://github.com/user-attachments/assets/380f3623-c74f-4c72-8467-2e1c40d676f6)
-tomat dead :(
-
+-
 
 FANDOMS: Roblox, TR:UD, TAWOG, Adventure Time, Friday Night Funkin, Rodamrix, Vs. Impostor, Among Us, Yume Nikki, FAI†H: The Unholy Trinity, Tattletail, OSC, Sonic The Hedgehog, Regretevator, Dandy's World, Sprunki, Lacey Games, Mandela Catalouge, MO4, _Boisvert, Doctor Nowhere, AVAM, Alien Stage, PJSK, GRACE, Forsaken, Sprunki, DREAMGAME.
 
@@ -84,19 +82,4 @@ Old github account: alienatic-aein
 
 thats all..
 
-
-
-<!--
-**BRUTAL-ENIGMA/BRUTAL-ENIGMA** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![Z4MN3Y - 1620175171809329160](https://github.com/user-attachments/assets/5827db82-b50c-4d8c-8cdf-b4c44a5a6bb2)

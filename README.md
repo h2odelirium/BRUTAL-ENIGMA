@@ -1,6 +1,9 @@
 ## Hey.
+Hi, my name is aein artwrite but call me aein for short. I'm often offtab playing games or doing schoolwork. I am heavily bad at socializing with new people but you are free to interact with me! I accept c+h and crowning ^_^.
 
-Hi, I'm Aein and get to know me right here: (this is for ponytown.)
+![image](https://github.com/user-attachments/assets/380f3623-c74f-4c72-8467-2e1c40d676f6)
+tomat dead :(
+
 
 FANDOMS: Roblox, TR:UD, TAWOG, Adventure Time, Friday Night Funkin, Rodamrix, Vs. Impostor, Among Us, Yume Nikki, FAI†H: The Unholy Trinity, Tattletail, OSC, Sonic The Hedgehog, Regretevator, Dandy's World, Sprunki, Lacey Games, Mandela Catalouge, MO4, _Boisvert, Doctor Nowhere, AVAM, Alien Stage, PJSK, GRACE, Forsaken, Sprunki, DREAMGAME.
 
@@ -61,22 +64,11 @@ Durple, Simon, Gray, Jevin, Mr Sun, Sky. (Sprunki)
 
 The Mafiosos, Eunoia, Nash, The Bunnies. (DREAMGAME)
 
-... Do not interact with me if:
+-
 
-You're a homo, racist, transphobic or just someone extremely problematic.
-You try to sexualize me.
-you made fun of me.
+![starr](https://github.com/user-attachments/assets/1e08fc38-d06f-4d6c-aed2-ddcde4a5f022)
 
-... If i interact with you:
 
-I'm interested in you
-You seem nice.
-Just wanting company.
-You're allowed to:
-
-c+h
-w2i
-crown my skin/cosplay
 
 SOCIALS YOU CAN ADD ME IN!
 

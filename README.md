@@ -3,7 +3,7 @@ Hi, my name is aein artwrite but call me aein for short. I'm often offtab playin
 
 -
 
-FANDOMS: Roblox, TR:UD, TAWOG, Adventure Time, Friday Night Funkin, Rodamrix, Vs. Impostor, Among Us, Yume Nikki, FAI†H: The Unholy Trinity, Tattletail, OSC, Sonic The Hedgehog, Regretevator, Dandy's World, Sprunki, Lacey Games, Mandela Catalouge, MO4, _Boisvert, Doctor Nowhere, AVAM, Alien Stage, PJSK, GRACE, Forsaken, Sprunki, DREAMGAME.
+FANDOMS: Roblox, TR:UD, TAWOG, Adventure Time, Friday Night Funkin, Rodamrix, Vs. Impostor, Among Us, Yume Nikki, FAI†H: The Unholy Trinity, Tattletail, OSC, Sonic The Hedgehog, Regretevator, Dandy's World, Sprunki, Lacey Games, Mandela Catalouge, MO4, _Boisvert, Doctor Nowhere, AVAM, Alien Stage, PJSK, GRACE, Forsaken, Sprunki, DREAMGAME, TMNT.
 
 Favorite characters from each of the fandoms i mentioned there.
 Noob, Guest, Acorn. (Roblox)
@@ -62,6 +62,8 @@ Durple, Simon, Gray, Jevin, Mr Sun, Sky. (Sprunki)
 
 The Mafiosos, Eunoia, Nash, The Bunnies. (DREAMGAME)
 
+The ninja turtles, thats all i care about sorry. (TMNT)
+
 -
 
 ![starr](https://github.com/user-attachments/assets/1e08fc38-d06f-4d6c-aed2-ddcde4a5f022)
@@ -78,7 +80,7 @@ Tiktok: alienatic.aein (hiatus)
 
 Roblox: bxmmer_land (1x4)
 
-Old github account: alienatic-aein
+Old github account: https://github.com/alienatic-aein
 
 thats all..
 

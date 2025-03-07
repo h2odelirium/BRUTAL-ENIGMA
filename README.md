@@ -76,7 +76,7 @@ Discord: n0point0f_return
 
 Twitter/X: alienaticAein
 
-Tiktok: alienatic.aein (hiatus)
+Tiktok: gr0wing.viruses (aeinnnn)
 
 Roblox: bxmmer_land (1x4)
 

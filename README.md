@@ -9,12 +9,10 @@ FANDOMS: Roblox, TR:UD, TAWOG, Adventure Time, Friday Night Funkin, Rodamrix, Vs
 
 ![starr](https://github.com/user-attachments/assets/1e08fc38-d06f-4d6c-aed2-ddcde4a5f022)
 
-
+discord: jx1_dx1
 
 strawgpage ... https://aeinx1zdxz.straw.page
 
 Old github account: https://github.com/alienatic-aein
 
 thats all..
-
-![Z4MN3Y - 1620175171809329160](https://github.com/user-attachments/assets/5827db82-b50c-4d8c-8cdf-b4c44a5a6bb2)

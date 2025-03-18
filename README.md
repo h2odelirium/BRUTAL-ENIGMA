@@ -9,7 +9,7 @@ FANDOMS: Roblox, TR:UD, TAWOG, Adventure Time, Friday Night Funkin, Rodamrix, Vs
 
 ![starr](https://github.com/user-attachments/assets/1e08fc38-d06f-4d6c-aed2-ddcde4a5f022)
 
-discord: jx1_dx1
+discord: ar4chnids_
 
 strawgpage ... https://aeinx1zdxz.straw.page
 

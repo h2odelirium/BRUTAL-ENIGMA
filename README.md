@@ -1,5 +1,5 @@
 ## Hey.
-Hi, my name is aein artwrite but call me aein for short or my nicknames, singularity and glacier ! . I'm often offtab playing games or doing schoolwork. I am heavily bad at socializing with new people but you are free to interact with me! I accept c+h and crowning....i mighht c+h/int with you cause i feel like a loner! ^_^.
+Hi, my name is aein artwrite but call me aein for short or my nicknames, singularity and alien ! . I'm often offtab playing games or doing schoolwork. I am heavily bad at socializing with new people but you are free to interact with me! I accept c+h and crowning....i mighht c+h/int with you cause i feel like a loner! ^_^.
 
 -
 
